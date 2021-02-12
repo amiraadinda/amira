@@ -1,2 +1,0 @@
-# amira
-Toko Sejahtera
